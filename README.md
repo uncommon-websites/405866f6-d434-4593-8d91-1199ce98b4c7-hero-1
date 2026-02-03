@@ -1,0 +1,2 @@
+# 405866f6-d434-4593-8d91-1199ce98b4c7-hero-1
+Hero section variant 1 for 405866f6-d434-4593-8d91-1199ce98b4c7
